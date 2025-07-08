@@ -29,7 +29,7 @@
 
 ### 📬 Get In Touch
 
-- 📫 Email: hello@kadirgecit.com
+- 📫 Email: rkgecit@gmail.com
 - 🌐 Website: [kadirgecit.com](https://kadirgecit.com)
 - 💼 LinkedIn: [linkedin.com/in/kadirgecit](https://linkedin.com/in/kadirgecit)
 
